@@ -1,2 +1,0 @@
-# DigitoDoNossoNumeroBancoDoBrasil
-DigitoDoNossoNumeroBancoDoBrasil
